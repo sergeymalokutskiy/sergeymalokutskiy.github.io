@@ -1,1 +1,0 @@
-# sergeymalokutskiy.github.io
